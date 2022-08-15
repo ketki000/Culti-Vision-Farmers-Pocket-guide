@@ -1,1 +1,0 @@
-# Culti-Vision-Farmers-Pocket-guide
